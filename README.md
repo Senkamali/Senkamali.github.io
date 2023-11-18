@@ -1,1 +1,0 @@
-# Senkamali.github.io
